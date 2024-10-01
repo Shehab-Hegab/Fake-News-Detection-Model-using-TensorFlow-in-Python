@@ -25,4 +25,4 @@ https://drive.google.com/file/d/1ekbxlI_GdF3H_XHS8U2Csj5q5AhNXhMp/view
 
 ![image](https://github.com/user-attachments/assets/664088ba-c92e-479e-9613-4d13e177a4ef)
 
-This news is false.
+
